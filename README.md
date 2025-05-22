@@ -1,4 +1,4 @@
-## Im Goated Or What?
+## Am I Goated Or What?
 
 
 **Luiforr/Luiforr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
